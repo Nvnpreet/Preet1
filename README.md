@@ -1,3 +1,4 @@
+मे बोट हू बस आपका इंटरटेनमेंट करता हू अगर आपको कोई हेल्प चाहिए तो मेरे बॉस ◉❖जुल्मी≛जाट❖◉ से बात करो FACEBOOK ID👇👇https://www.facebook.com/julmijaat1008?mibextid=ZbWKwL
 ## <h3 align="center">
   
   <p align="center"><img src="https://img.shields.io/badge/WELCOME%20TO -✦𝗝𝗔𝗔𝗧✦BOT-green?colorA=%23ff0000&colorB=%23017e40&style=flat-square">  
